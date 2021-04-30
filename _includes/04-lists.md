@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+1. Activities
+  1.  Cycle
+  2.  Trekking
+
+
+*  Food
+  * Indian ❤️
+    * Fish and Chips     
